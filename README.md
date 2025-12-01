@@ -4,7 +4,7 @@
 
 .    → spawn/NG area ; usually with friends
 
-.    → no dni ; block and follow freely
+.    → no dni ; block and follow freely                                                                                  ![image alt](https://github.com/dragondudes333/dragondudes333/blob/main/Untitled453.webp?raw=true)
 
 .    → inspo is allowed! ; DNC unless given permission to
 
@@ -16,3 +16,4 @@ links 4 more info
 ![](https://komarev.com/ghpvc/?username=dragondudes333&color=green)
 
 readme made with the help of my lovely boyfriend <33
+Haha, tank you -Dude
