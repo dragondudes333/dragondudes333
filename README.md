@@ -1,5 +1,3 @@
-# # ![image alt](https://github.com/dragondudes333/higuys/blob/main/Untitled455_20251130185300.webp?raw=true)
-
 **Greenj/Tommy!**
 
 .    → spawn/NG area ; usually with friends
@@ -8,7 +6,6 @@
 
 .    → inspo is allowed! ; DNC unless given permission to
 
-links 4 more info 
 
 [strawpage](https://hoodiiinii.straw.page/) [guns.lol](https://guns.lol/greenj)
 ![image alt](https://github.com/dragondudes333/dragondudes333/blob/main/Untitled452.webp?raw=true)
