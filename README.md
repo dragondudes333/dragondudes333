@@ -1,6 +1,6 @@
 **Greenj/Tommy!**
 
-.    → spawn/NG area ; usually with friends
+.    → spawn/NG/valve area ; usually with friends
 
 .    → no dni ; block and follow freely                                                                                  ![image alt](https://github.com/dragondudes333/dragondudes333/blob/main/Untitled453.webp?raw=true)
 
